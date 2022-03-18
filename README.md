@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nathmsoares
+- 👀 I’m interested in UX/UI Design
+- 🌱 I’m currently learning UX experience
+- 📫 How to reach me: https://www.linkedin.com/in/nath%C3%A1lia-mendes-soares-845293166/
