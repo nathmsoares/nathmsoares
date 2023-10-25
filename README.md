@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @nathmsoares
 - 👀 I’m interested in UX/UI Design
-- 📫 How to reach me: [https://www.linkedin.com/in/nath%C3%A1lia-mendes-soares-845293166/](https://www.linkedin.com/in/nathmsoares/)https://www.linkedin.com/in/nathmsoares/
+- 📫 How to reach me: https://www.linkedin.com/in/nathmsoares/
